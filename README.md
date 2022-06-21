@@ -1,4 +1,8 @@
 # sms_otp
+step 1 install apps on handphone
+step 2 use the <#>kode anda bebas ("contoh 6666")
+                Xsi+9w3jEQn
+                Jangan Bagi Code ini
 ![image](https://user-images.githubusercontent.com/80655981/174707128-2d542291-583d-464c-9125-d4fcc911bf19.png)
 
 
